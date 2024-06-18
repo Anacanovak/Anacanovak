@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Bank, Fintech, Fintail.
 - 📫 How to reach me https://wa.me/5541998066228, https://www.linkedin.com/in/anacarolinanovak
 - 😄 Pronouns: Ela, Ella, She
-- ⚡ Fun fact: I training pets.
+- ⚡ Fun fact: I love travel with my family and training pet.
 
 <!---
 Anacanovak/Anacanovak is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
